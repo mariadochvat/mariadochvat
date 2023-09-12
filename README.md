@@ -8,7 +8,11 @@ Meu nome é Maria Paula Dochvat
 
 ### Você entrar em contato comigo
 
+maria.dochvat@escola.pr.gov.br
 
+@maria_dochvat
+
+https://tenor.com/pt-BR/view/sending-love-gif-25755600
 
 
 
